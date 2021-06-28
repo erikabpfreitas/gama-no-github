@@ -1,0 +1,1 @@
+Tinha uma noção bagunçada sobre GIT. Agora estou começando a organizar meu conhecimento. Estou gostando muito do curso.
